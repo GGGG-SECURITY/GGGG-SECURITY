@@ -1,4 +1,4 @@
-## Hi im TITUS CHERUIYOT 👋
+## Hi TITUS CHERUIYOT 👋
 
 
 A cybersecurity professional sharing about my journey and learning
